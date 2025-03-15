@@ -1,0 +1,3 @@
+
+![[Pasted image 20250113190522.png|500]]
+Nightclub prowadzony przez trzech braci. Znajduję się w jakiejś ciemnej wąskiej uliczce a z zewnątrz rozpoznać go można po neonowym napisie  Neon Nights. Oferuje on średniej jakości drinki i podobnej jakości muzykę na żywo. Nie jest to jakoś bardzo popularne miejsce ale praktycznie że zawsze ktoś się w nim znajdzie. W piątki i soboty urządzane jest tutaj karaoke. Nocami z powodu jego lokalizacji często staję się miejscem spotkań różnych szemranych typów

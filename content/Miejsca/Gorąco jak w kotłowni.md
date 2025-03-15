@@ -1,0 +1,2 @@
+Salon tatuażu prowadzony przez [[Kara|Kare]]. Położony jest w jednej z kamiennic w cetrum. Posiada on steampunkowy wystrój. Wzdłuż sufitu i ścian biegną liczne metalowe rury z których od czasu do czasu bucha para. Wszędzie pełno jest najróżniejszego rodzaju dźwigni, pokręteł i zaworów. Salon jest całkiem ciasny i poza kilkoma krzesłami dla klientów oraz fotelem koło którego znajduje się cudaczna maszyna do tatutowania nie ma w nim za bardzo na nic miejsca. 
+![[Pasted image 20250214185440.png|300]]

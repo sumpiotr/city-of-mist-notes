@@ -1,0 +1,1 @@
+Przesiaduje z reguły w [[Klub Melodia]] gdzie zapija swoje smutki. Potrafi przewidywać przyszłość jednak dawno temu zrezygnował z korzystania z tego daru. Niegdyś był potężnym wojownikiem pilnującym porządku na świecie jednak po śmierci swojej rodziny załamał się. Jest teraz cieniem dawnego siebie. 

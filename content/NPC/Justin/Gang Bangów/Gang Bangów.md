@@ -1,0 +1,1 @@
+Niebezpieczna grupa przestępcza przemytników i handlarzów ludźmi. Prowadzona przez [[Jacob Stone|Jacob'a]]. Z czego zdają sobie sprawę tylko nieliczni jej członkowie jest grupą kontrolowaną całkowicie przez [[Klan Setek Ostrzy]]. 

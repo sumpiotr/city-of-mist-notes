@@ -1,0 +1,4 @@
+Dawniej jeden z wielkich klanów Xanwu. Szczycił się swoją techniką setek ostrzy która pozwala użytkownikowi na manifestacje swojego qi w postaci zdolnych do przecięcia wszystkiego broni.  Technika ta wieki temu przekazana została pierwszej głowie tego klanu przez straszliwego demona o czym na przestrzeni lat zapomniano a co z powrotem odkryła jego ostatnia głowa. 
+
+
+Jego głowa [[Leonard Nożowski]] posiadał predyspozycje na zostanie jednym z wielkich zabójców cienia. Ostatecznie jednak na wskutek nieudanej próby przewrotu klan został rozbity a Leonard z cudem uszedł z życiem. Od tamtego czasu klan działa w ukryciu w okrojonym składzie i bliżej mu już do sekty niż do klanu. 

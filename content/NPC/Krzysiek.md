@@ -1,0 +1,1 @@
+Młody chłopaczek będący uczniem [[Ivan||Ivan'a]]. Jest zapatrzony w swojego mistrza jak w obrazek

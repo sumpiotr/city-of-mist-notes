@@ -1,0 +1,2 @@
+![[Pasted image 20250113185224.png]]
+Dojo prowadzone przez mistrza [[Nariko]]. Pierwsze dwie lekcje gratis! Znajduję się w nim lokalny punkt ligi zabójców. Posiada przedsionek, sale treningową oraz mały dziedziniec z tyłu budynku. 

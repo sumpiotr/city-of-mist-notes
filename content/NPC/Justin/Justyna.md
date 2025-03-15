@@ -1,0 +1,1 @@
+Siostra Justina. Została porwana przez [[Gang Bangów]] który żąda za nią niezwykle dużego okupu. Była akurat obecna przy transporcie przez gang artefaktu zawierającego duszę Sukuny i na skutek wypadku przy pracy Sukuna został do niej przeniesiony o czym nikt nie zdaje sobie sprawy. 

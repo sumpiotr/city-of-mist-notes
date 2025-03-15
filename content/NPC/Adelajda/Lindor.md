@@ -1,0 +1,1 @@
+Przygłupawy starszy brat Adelajdy. Ma nadzwyczajny dar do pakowania się w kłopoty. Kibol i patus. Za swoje długi i niepowodzenie w świecie biznesu wini swoją siostrę. 

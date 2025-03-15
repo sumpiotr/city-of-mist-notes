@@ -1,0 +1,1 @@
+Ich prawdzie imiona to Adam i Barbara. Są emerytowanymi przestępcami. Za swojej młodości dopuszczali się wielu śmiałych skoków na banki i inne instytucje. Pomimo podeszłego wieku nie mogą usiedzieć w spokoju i postanowili że wykonają ostatni skok. Dom starości "Drugie życie" będzie stanowił idealną przykrywkę i bazę wypadową. 
