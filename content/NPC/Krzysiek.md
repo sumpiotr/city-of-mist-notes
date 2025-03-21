@@ -1,1 +1,1 @@
-Młody chłopaczek będący uczniem [[Ivan||Ivan'a]]. Jest zapatrzony w swojego mistrza jak w obrazek
+Młody chłopaczek będący uczniem [[Ivan White||Ivan'a]]. Jest zapatrzony w swojego mistrza jak w obrazek. Pilnie słucha każdego z jego słów aby pewnego dnia być w stanie sporządzić równie wspaniałego kebaba jak jego mistrz. Kebabowy biznes jest jednak biznesem okrutnym i nie starczy umieć gotować lecz trzeba umieć też o swoje walczyć. Próbuje nauczyć się techniki swojego mistrza ale słabo mu to wychodzi. 

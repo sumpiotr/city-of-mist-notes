@@ -1,0 +1,1 @@
+Najlepsza przyjaciółka i obiekt westchnień Sama. Kilka lat temu jej matka zginęła w wypadku. Po tym wydarzeniu wychowywana samotnie przez ojca który po wypadku popadł w alkoholizm i często się nad nią znęca. 

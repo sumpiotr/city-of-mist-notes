@@ -1,0 +1,1 @@
+Nowa restauracja z kebabami. Znajduję się w luksusowym budynku z klimatyzacją i niepozatykanymi toaletami. Kebaby opracowywane są tutaj przez tureckiego kuchmistrza w swoim fachu [[Ivan White||Ivana White'a]]. Ładnie wystrojona restauracja w białych motywach
