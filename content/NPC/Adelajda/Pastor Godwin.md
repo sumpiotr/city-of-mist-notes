@@ -10,3 +10,5 @@ Wygląd:
 
 Adelajda:
 Pastor jest dla niej pełen współczucia. Była z niej przecież taka dobra dziewczyna, a teraz mrok powoli pochłania jej duszę. Co gorsza prowadzi ona teraz okultystyczny biznes za pomocą którego szerzy mrok wśród mieszkańców miasteczka. Trzeba ją powstrzymać! Pastor wierzy że jest dla niej jeszcze jakaś nadzieja i zrobi wszystko co w swojej mocy żeby uratować jej duszę nawet jeśli jedyną opcją będzie święty ogień
+
+Z czego Adelajda nie zdaję sobie sprawy to on stoi za śmiercią jej ukochanego dziadka. Magiczne praktyki Kszystofa zostały uznane przez pastora za zagrożenie. Próbował mu on oczywiście wpierw pomóc jednak dusza Krzysztofa była już całkowicie zatracona. Święty ogień jednak z pewnością pomógł ją oczyścić. 

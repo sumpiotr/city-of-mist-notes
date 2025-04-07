@@ -9,3 +9,19 @@ Wygląd:
 
 Technika: Zew Szaleństwa
 Przy pomocy swojej techniki Don potrafi sprawiać że ludzie tracą zmysły wpadając w odmęty szaleństwa. Na każdym ze swoich podwładnych użył swojej techniki i jeśli regularnie nie będzie odwracał jej efektów ci odejdą od zmysłów
+
+Pokonaj 3/Przekoanaj 5/ Dobij targu 3
+<ul>
+<li>Ochrona - kiedykowliek Dion miałby stać się celem statusu zamiast tego status ten przyjmują jego ochroniarze</li>
+<li>Dion przyzywa pnącza winorośli które oplatają graczy nadając im status Skrępowani-3</li>
+<li>Zew Szaleństwa - popisowa technika Diona. Wpływa na umysł swoich ofiar i nadaje im status Zatraceni-3</li>
+<li>Moc boga - ostatnia deska ratunku. Dionizos zaczerpuje swoich boskich mocy. Nadaje przeciwnikom status Zrównani z ziemią - 5. Sam natomiast przyjmuje status Wyczerpany - 4 </li>
+</ul>
+
+Ochroniarze Diona (czterech) (bonus grupy - 2)
+Pokonaj 3
+<ul>
+<li>Szaleńczy szał - zatraceni ochroniarze nie odczuwają bólu. Za każdym razem kiedy mają otrzymać fizyczny status otrzymują status o jeden mniejszy. Zaczynają natomiast walkę ze statusem Szaleńcy-2 </li>
+<li>Ochroniarz zamachuje się na przeciwnika maczetą nadając status Pocharatany-2</li>
+</ul>
+

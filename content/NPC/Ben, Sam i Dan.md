@@ -1,7 +1,7 @@
 
 Trzej bracia bliźniacy. Właściciele klubu [[Neon Nights]]. Poza zarządzaniem klubem sami często w nim występują.  Płatni zabójcy nr 8574 na liście rankingu ligi zabójców. Używają swojej muzyki jako broni. Są bardzo impulsywni, łatwo im podpaść. Wszędzie gdzie się pojawią szukają powodu do bójki. Nad wszystko kochają muzykę którą kończą 
 
-<h3>Sam</h3>
+<h3>Ben</h3>
 Można określić go mianem przywódcy ich grupy. On z reguły wszystkim zarządza i pilnuje żeby Dan nie narobił zbyt dużych szkód. On wpadł na pomysł założenia zespołu i to jego największym marzeniem jest zagranie kiedyś na dużej scenie
 
 Wygląd:
@@ -9,6 +9,14 @@ Wygląd:
 - ma spiczaste zafarbowane na czerwono włosy
 - wokół jednej ręki ma wytatuowanego węża
 - W zespole jest wokalistą 
+
+Pokonaj 5
+<ul>
+<li>Power of the Necrodancer - cały świat wokół Bena zaczyna poruszać się do taktu muzyki</li>
+<li>Wyczucie rytmu - Ben zaczyna walke ze statusem 5 Wyczucie rytmu który pozwala mu na unikanie wszystkich ataków</li>
+<li>Turowa potyczka - po dostaniu obrażeń jeśli nie posiada tagu "Atakujący" zyskuje go, a jeśli go posiada traci go i wyprowadza atak</li>
+<li>Porywająca duszę melodia - nadaje status Spętana Dusza - 3</li>
+</ul>
 
 
 <h3>Dan</h3>
@@ -21,6 +29,12 @@ Wygląd:
 	<li>chodzi w zdartych na kolanach dżinsach i podartej podkoszulce</li>
     <li>Perkusista zespołu</li>
 </ul>
+
+<ul>
+<li>Jak pierdolnie... - uderza z całych sił nadając status Pogruchotany - 4</li>
+<li>Fala uderzeniowa - nadaje wszystkim przeciwnikom status Posinaczeni - 2</li>
+</ul>
+
 <h3>Sam</h3>
 Najspokojniejszy z braci. Posiada ukryty soft side który ukrywa przed braćmi. Od brutalnej głośnej rockowej muzyki preferuje spokojne, smutne piosenki o miłości. W ukryciu do perfekcji opanował zaginioną technikę sound of sadness. Zakochał się w [[Jagoda||Jagodzie]] z którą są przyjaciółmi od dzieciństwa. Doskonale wie że nie ma szansy na nic więcej. 
 

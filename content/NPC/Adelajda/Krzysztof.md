@@ -1,0 +1,1 @@
+Świętej pamięci dziadek Adelajdy. Praktykował starożytne magiczne rytuały, próbował zgłębić tajemnice świata. Pewnego dnia przypadkiem otworzył bramy do piekieł, które ostatecznie zostały zamknięte przez [[Pastor Godwin|| Pastora Godwin'a]] z którego to też ręki Krzysztof po zignorowaniu ostrzeżeń zginął. 

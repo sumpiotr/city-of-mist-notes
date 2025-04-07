@@ -1,0 +1,1 @@
+Sławny król szczurów który zaszył się w kuchni "Nowego Życia". Strażnik wszelkich sekretów miasteczka jednak za nowe sekrety jest gotów przetargować część informacji 
