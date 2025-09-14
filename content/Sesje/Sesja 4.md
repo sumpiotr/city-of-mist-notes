@@ -1,13 +1,7 @@
-<b>Adelajda</b>
-Okradnięty Mnich 
-
-W momencie w którym uda się do swojego domku zastanie go zdemolowanego. 
 
 Tajne info:
 Zdemolowania dopuściła się grupka Lindora. Pastor zlecił im "przekonanie" Adelajdy do zaprzestania szerzenia okultystycznych praktyk. 
 
-<b>Nieokiełznane pragnienie</b>
-Graczy którzy na ostatniej sesji poczęstowali się winem Diona zacznie nękać coraz to większe pragnienie którego nic nie będzie w stanie ugasić. Szybko stanie się jasne że może zaspokoić je trunek Diona. 
 
 <b>Prośba Diona</b>
 Wolfgang Scholtz - lokalny dealer narkotykowy. Cierń w boku Diona. Potrzebuję się go pozbyć po cichu, gotowy będzie wybaczyć graczom jeśli mu pomogą. 
