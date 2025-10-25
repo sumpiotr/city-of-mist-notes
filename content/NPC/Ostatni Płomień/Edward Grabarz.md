@@ -1,0 +1,5 @@
+Wysoki, wychudzony mężczyzna. Zawsze wyczuć można od niego zapach świeżo rozkopanej cmentarnej ziemi. Chodzi ubrany w długie płaszcze praktycznie że całkowicie chowające go przed obserwatorem i ciężkie gumowce. Wszędzie chodzi z pobrudzoną łopatą w ręku. 
+
+Pracuje jako grabarz w Ostatnim Płomieniu. Co prawda dom nie posiada żadnego cmentarza ale jak mawia Edward będzie go posiadał od setek lat za jakiś miesiąc, góra dwa jak dobrze pamięta.  Jest dawnym doradcą Wielkiego Szefa jednak z powodu "braku energicznego entuzjazmu" został z tego stanowiska zwolniony przez nowy zarząd.
+
+Ponury, gburowaty typ. Zdecydowanie nie jest fanem nowego zarządu. Uważa że za starego szefa wszystko lepiej się układało. Widząc jak porządek rzeczy staje na głowie będzie chciał potajemnie wrócić do starych biznesowych praktyk.

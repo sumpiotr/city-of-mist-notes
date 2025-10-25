@@ -1,0 +1,1 @@
+Nowy młody pracownik zatrudniony w celu "zdynamizowania i odmłodzenia zespołu". Student który szukał pracy żeby gdzieś sobie dorobić i tylko tutaj go przyjęli. Nieśmiały, wiecznie się jąka, wszystkiego się boi. 
