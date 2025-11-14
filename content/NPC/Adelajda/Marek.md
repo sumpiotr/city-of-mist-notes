@@ -1,0 +1,1 @@
+Najmłodszy ze złodziei. Postrzega swoich pracodawców jako proroków niosących sprawiedliwość. 

@@ -1,3 +1,9 @@
 Z pozoru sympatyczna starsza pani. Wśród złodziei serc pełni rolę informatorki i przewodniczki. Wraz z rozpoczęciem się kampanii wyborów zgłosi się do domu spokojnej starości w celu infiltracji szeregów wroga. Nigdzie nie rusza się bez swoich drutów na których w kółko coś dzierga. Była nauczycielka
 
+Planuje zinfiltrować dom spokojnej starości w celu znalezienia brudów na Stefana
+
 **Kostium:** stara, staroświecka sukienka z gorsetem uszytym z nici; igły i nici przy pasie, maska z uśmiechem jak z porcelanowej lalki.
+
+Myhos: Vox 
+
+Za pomocą swoich nici potrafi przejmować kontrolę nad ludźmi. Marionektarka. P
