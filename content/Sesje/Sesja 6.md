@@ -56,3 +56,9 @@ Radek Cichowski nie jest zadowolony kandydaturą Stefana na prezydenta. Będzie 
 Dodatkowo po mieście rozwieszane są plakaty kampanijne
 
 
+<b>Mindfullnes</b>
+Naddyrektor Kwiatuszek odkrył czasopismo Mindfulness przedstawiające zalety znachorkich medytacji. Oczarowany spsobami ludzi na oczyszczanie się ze złej energi postanawia przeprowadzić zajęcia
+
+Na jego biurku leży najnowszy numer mindfulness oraz paczka ze sklepu vibracje sklep ezoteryczny
+
+
