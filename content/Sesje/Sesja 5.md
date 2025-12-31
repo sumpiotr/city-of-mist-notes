@@ -13,19 +13,7 @@ Pokonaj 3
 
 Jeśli w jakiś sposób przyciśnie Bangów do muru dowie się o jakieś wymianie towarów w dockach do której ma dojść w Niedziele. 
 
-Jeśli któryś z wątków dojdzie do walki z przywódcą Bangów dozna on pod koniec walki nagłej zmiany serca, gracze znajdą przy nim list
 
-
-Jacobie Stonie, wielki grzeszniku chciwości
-
-Twoje serce zostało osądzone.  
-W pogoni za zyskiem zdeptałeś życie wielu niewinnych ludzi.  
-Handlowałeś ciałami tak, jak inni handlują towarem, a twoja chciwość zatruła to miasto.
-
-Twoje zbrodnie wkrótce ujrzą światło dnia.  
-Wykradniemy twoje serce i sprawimy że przyznasz się do swoich win własnymi ustami. 
-
-**Podpisano: Widmowi Złodzieje Serc**
 
 <h2>Kasyno</h2>
 
