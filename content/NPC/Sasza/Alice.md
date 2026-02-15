@@ -1,0 +1,2 @@
+Android stworzony jako ostateczna broń zagłady przez Stern. Miała służyć jako assain przeciwko assasinom. Jako że przejęła pokojową osobowość po swoim ludzkim pierwowzorze została uznana za porażkę. Jakiś czas temu w wyniku jakiegoś nieprzewidzianego błędu przebudziła się i uciekła z laboratorium jej celem jest wtopienie się w tłum i zgromadzenie jak największej ilości informacji na temat płatnych zabójców
+

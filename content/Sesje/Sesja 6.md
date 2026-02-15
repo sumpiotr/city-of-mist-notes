@@ -30,35 +30,10 @@ Pokonaj 5
 
 
 
-<b>Skradzione Serce</b>
 
-W dokach ma dojść do wymiany towarów pomiędzy ostrzami i bangami. Dachy przy miejscu wymiany obstawiają Bangowie. 
-
-
-
-Jeśli dojdzie do walki z przywódcą Bangów dozna on pod koniec walki nagłej zmiany serca, gracze znajdą przy nim list:
-
-
-Jacobie Stonie, wielki grzeszniku chciwości
-
-Twoje serce zostało osądzone.  
-W pogoni za zyskiem zdeptałeś życie wielu niewinnych ludzi.  
-Handlowałeś ciałami tak, jak inni handlują towarem, a twoja chciwość zatruła to miasto.
-
-Twoje zbrodnie wkrótce ujrzą światło dnia.  
-Wykradniemy twoje serce i sprawimy że przyznasz się do swoich win własnymi ustami. 
-
-**Podpisano: Widmowi Złodzieje Serc**
-
-<b>Nowy prezydent</b>
-Radek Cichowski nie jest zadowolony kandydaturą Stefana na prezydenta. Będzie chciał wyjaśnić tą sprawę 
-
-Dodatkowo po mieście rozwieszane są plakaty kampanijne
 
 
 <b>Mindfullnes</b>
 Naddyrektor Kwiatuszek odkrył czasopismo Mindfulness przedstawiające zalety znachorkich medytacji. Oczarowany spsobami ludzi na oczyszczanie się ze złej energi postanawia przeprowadzić zajęcia
 
 Na jego biurku leży najnowszy numer mindfulness oraz paczka ze sklepu vibracje sklep ezoteryczny
-
-

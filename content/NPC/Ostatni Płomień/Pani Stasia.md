@@ -9,3 +9,4 @@ W sekrecie ma mythos kota, zostało jej już niewiele żyć
 Zanim zaatakuje swój cel zawsze widzi czarnego kota (jej cel nie ona)
 
 Straż osiedlowa
+
